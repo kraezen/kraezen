@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... CG and automation
 - 🌱 I’m currently learning ... CS50x
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... don't
+- 📫 How to reach me ... www.kushaan.art/
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I have no idea what I am doing
 
